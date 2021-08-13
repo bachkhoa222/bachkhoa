@@ -1,2 +1,2 @@
 # bachkhoa
-http://bachkhoaaa/just4you
+http://bkhoaaa.github.io//just4you
